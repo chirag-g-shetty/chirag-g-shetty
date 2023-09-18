@@ -1,1 +1,1 @@
-Programmer, passionate about elevating user experiance with innovative and creative thinking.
+Programmer, passionate about elevating user experience with creative and innovative thinking
